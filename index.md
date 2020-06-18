@@ -13,3 +13,5 @@ Judah Ben-Hur, shortened to Ben-Hur, is a fictional character, the title charact
 * strong
 * when feats of physical endurance are required, he is ready to face the most harrowing of obstacles
 
+> You may conquer the land, you may slaughter the people. That is not the end. We will rise again. 
+
