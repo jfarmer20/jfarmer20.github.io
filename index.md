@@ -15,3 +15,5 @@ Judah Ben-Hur, shortened to Ben-Hur, is a fictional character, the title charact
 
 > You may conquer the land, you may slaughter the people. That is not the end. We will rise again. 
 
+<img src="https://upload.wikimedia.org/wikipedia/commons/9/90/Charlton_Heston_in_Ben_Hur_trailer.jpg"/>
+
